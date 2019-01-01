@@ -1,1 +1,0 @@
-# comenzando-con-la-fotografia
